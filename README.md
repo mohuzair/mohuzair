@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/mohuzair](https://github.com/mohuzair)
 
-- 💬 Ask me about **Python and relates AI&ML libraries**
+- 💬 Ask me about **Python and related AI&ML libraries**
 
 - 📫 How to reach me **mohduzair1103@gmail.com**
 
