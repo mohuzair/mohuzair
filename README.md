@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mohduzair1103@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_Aw6JVpC668ULKAaYSaSvVDpuLzS32yg/view?usp=sharing](https://drive.google.com/file/d/1_Aw6JVpC668ULKAaYSaSvVDpuLzS32yg/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
